@@ -7,6 +7,7 @@ https://github.com/Sacharas/ANATOMY/blob/main/%D0%9D%D0%BE%D1%80%D0%BC%D0%B0%D0%
 
 [Cкачать](https://github.com/Sacharas/ANATOMY/files/12506162/-.1.pdf)
 
+2. Анатомия человека, Привес М.Г., Лысенков Н.К., Бушкович В.И., 2006
 
-
-  
+   [Скачать](https://github.com/Sacharas/ANATOMY/files/12506188/2006.pdf)
+   
