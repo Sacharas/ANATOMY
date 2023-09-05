@@ -11,3 +11,6 @@ https://github.com/Sacharas/ANATOMY/blob/main/%D0%9D%D0%BE%D1%80%D0%BC%D0%B0%D0%
 
    [Скачать](https://github.com/Sacharas/ANATOMY/files/12506188/2006.pdf)
    
+
+https://1drv.ms/f/s!AlzNttk6_48YhQugSZjC5W1nvD4D?e=naVzqh
+
